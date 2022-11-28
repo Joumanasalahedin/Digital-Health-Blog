@@ -1,3 +1,3 @@
-## Blog Post
+## Digital Health
 
 Digital Health Blog Post
